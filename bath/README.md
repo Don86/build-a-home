@@ -4,8 +4,13 @@
 
 ### Shower
 
-* You can just unhook and toss shower curtains into the wash. Shower doors, and the shower door *frame*, are a seroius PITA to clean (weekly/fortnightly). 
+* Shower curtains win hands down for ease-of-maintenance, shower doors are better for keeping water within the shower-space. You can just unhook and toss shower curtains into the wash. Shower doors, and the shower door *frame*, are a seroius PITA to clean (weekly/fortnightly). 
+* You can DIY some weights at the bottom of shower curtains to stop them from attacking you with their slimy hugs.
+* You can stick your hand out of a shower curtain to grab a towel
+* You can't use a high-pressure shower head with shower curtains, because the ricochet will cause curtains to blow out, unless the showerhead points directly downward. You'll have to use rain showers. 
 * There are certain "tropical resort" aesthetics you can make use of for shower curtains.
+* good alternative that looks expensive: shower screens. Note the extremely high hob: https://www.trendhunter.com/trends/rolling-shower-screen
+* Tubs will, unfortunately, likely be just a waste of space. You won't use it personally (too much faff), you have no kids or pets to wash.
 
 ### Bathroom tiles
 
