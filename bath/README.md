@@ -21,3 +21,6 @@
 * Use large-ish bathroom tiles, unless you love scrubbing tile grout. Note: this may be more expensive per sqm.
 * Grout sealant is also a thing: https://www.bunnings.com.au/diy-advice/diy-skills/tiling/how-to-seal-grout
 * **Tiles are water proof, grout less so**. Grout is porous, and can wick water to places where you don't want them to go, or simply store them and grow mold. Note: scrubbing tile grout can scrub away grout sealant, so re-application is probably necessary. 
+* Tile grout sealant is a penetrant, not a coating, so don't lay it on thick, and give it time to absorb between applications (two applications per job).
+* Tile grout may sometimes have hydrophobic elements mixed into them, which somewhat mitigates the need for sealant. Use the water-puddling test to check (if water beads or puddles on top of tile grout, then it's water resistant. Otherwise, water will be absorbed into the grout.)
+* Apply tile grout sealant every year or so. Every 6 months if you're feeling hardworking. 
